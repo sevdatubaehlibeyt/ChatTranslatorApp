@@ -1,4 +1,5 @@
-![Uploading Ekran görüntüsü 2026-01-04 233452.png…]()
+<img width="844" height="482" alt="Ekran görüntüsü 2026-01-04 233452" src="https://github.com/user-attachments/assets/0406916b-9bae-412a-9cb5-c20dad8ae90e" />
+
 
 
 
