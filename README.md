@@ -1,4 +1,5 @@
-![Uploading image.png…]()
+![Uploading Ekran görüntüsü 2026-01-04 233452.png…]()
+
 
 
 💬 ChatTranslatorApp
